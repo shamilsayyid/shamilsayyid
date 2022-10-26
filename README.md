@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @shamilsayyid.
+- 👀 I’m interested in HRM, AI, Crypto & Technology.
+- 🌱 I’m currently an MBA Graduate in Human Resource Managment & Marketing.
+- 💞️ I’m looking to collaborate on all new tech-human related projects which may also include recruitments.
+- 📫 How to reach me is via my mail (saidmuhammadshamil44@gmail.com) or on instagram (www.instagram.com/shamil_sayyid).
+- ✨ Just sharing a thought: Prioritise updating our self to the optimum level of current generation rather than spending time to update your devices from previous generation.
+- 💫 Myself here - ![shamilsayyid](https://user-images.githubusercontent.com/116694592/197929130-121e8361-3f09-457d-acdb-bec58318e442.png)
